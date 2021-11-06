@@ -1,2 +1,2 @@
-# TehAmoungBOT
-Welcome To The Among BOT! 
+# TehAmoungBOT.com
+
